@@ -7,6 +7,6 @@
 
 <p align="center">
   
-![Logo]([https://i.postimg.cc/NFpG0hTT/Untitled345-20260812141000.png](https://postimg.cc/0rF6yjkx)
+
 
 </p>
