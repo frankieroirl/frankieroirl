@@ -13,7 +13,7 @@ frankie or yena , andre too! give me nicknames, i love them . ♡
 <p align="center">
   frank iero yume and factkin . dni doubles !
 <p align="center">
-  callie, funghoul, andre fictkin
+  callie, funghoul, andre fictkin , hannibal yume ( selectivesharing uwu )
 <p align="center">
   he him only ! no she .
   <p align="center">
